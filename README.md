@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AboljojkCats
-- and i love cats esspecially kittens
+- and i love cats especially kittens
 - ![Cat (1)](https://user-images.githubusercontent.com/98207492/150630410-9771e7f0-46e9-4dcb-8eba-692913a07006.jpg)
 - ![Cat (2)](https://user-images.githubusercontent.com/98207492/150630430-03c66703-e882-40bc-9a21-17ed99d68961.jpg)
 ![Cat (3)](https://user-images.githubusercontent.com/98207492/150630434-5d2d32b3-ac04-4b12-a8f9-689559a21a89.jpg)
